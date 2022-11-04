@@ -5,6 +5,6 @@ Tack för att du lyssnade
 ## Kontaktinformation
 
 - e-post: david.gyllenberg at utu.fi
-- Twitter: @DavidGyllenberg
+- Twitter: [@DavidGyllenberg](https://twitter.com/DavidGyllenberg)
 
 ## Referenser
