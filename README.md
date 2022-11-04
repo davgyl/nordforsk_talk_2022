@@ -1,6 +1,6 @@
 ## Nordforsk-inlägg Oslo 2022-11-10
 
-Tack för att du lystnade
+Tack för att du lyssnade
 
 # Kontaktinformation
 
